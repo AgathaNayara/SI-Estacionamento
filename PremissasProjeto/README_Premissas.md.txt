@@ -1,0 +1,1 @@
+# Guarde nesta pasta, os documentos sobre o limites e regras gerenciais a serem seguidas
